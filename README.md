@@ -8,5 +8,5 @@
 
 - my skills : empathy, autonomy and ease of learning.
 
-- 📫 How to reach me : gaetansourisse.fr / https://www.linkedin.com/in/gaetansourisse/
+- 📫 How to reach me : gaetansourisse@hotmail.fr / https://www.linkedin.com/in/gaetansourisse/
 
